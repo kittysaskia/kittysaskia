@@ -3,4 +3,4 @@
   
  
     
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ[guns.lol](https://guns.lol/sunndae) ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ[guns.lol](https://guns.lol/aaikoo) ㅤ
