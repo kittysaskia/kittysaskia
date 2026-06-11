@@ -1,6 +1,9 @@
-<img width="1200" height="1200" alt="IMG_3436" src="https://github.com/user-attachments/assets/2a494183-b580-4ef8-b82f-4dc4a8c271b8" />
+<img width="1199" height="1131" alt="IMG_3524" src="https://github.com/user-attachments/assets/4b0e37ca-b70e-4cdd-a312-c4ce94e17e57" />
 <p align="center"> 
   
  
     
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ[guns.lol](https://guns.lol/aaikoo) ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ
+[prns.page]
+([](https://en.pronouns.page/@sunndae))
+[guns.lol](https://guns.lol/aaikoo) ㅤ
