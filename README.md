@@ -3,7 +3,5 @@
   
  
     
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ
-[prns.page]
-([](https://en.pronouns.page/@sunndae))
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://sundaee.atabook.org/) ㅤ[prn.cc](https://pronouns.cc/@sunnyycakess) ㅤㅤ[prns.page](https://en.pronouns.page/@sunndae)
 [guns.lol](https://guns.lol/aaikoo) ㅤ
